@@ -1,1 +1,1 @@
-Investment time! 🌱🌱
+🌱 Investment time! 🌱
